@@ -6,7 +6,21 @@
 ---
 
 ## 📑 Professional Summary
-Highly dedicated and communicative legal professional and researcher. Most recent position involved the administration of International Human Rights Litigation at the Ministry of Human Rights. Experienced in legal assistance through work at the Legal Practice Centre during graduation. Holds strong expertise in Public International Law, Human Rights, Humanitarian Law, International Criminal Law, International Courts and Tribunals, and International Relations. Passionate about marketing applications within the legal framework.
+Researcher. My most recent position involved the administration of International Human Rights Litigation
+at the Ministry of Human Rights. I hold a Master’s degree in International Law from Griffith College
+Dublin, Ireland, and am a researcher at NETI (Research Centre on International Courts and Tribunals) at
+the University of São Paulo (USP). I graduated in Law from the University of Itaúna, where I worked at the
+Legal Practice Centre as a legal assistant. I completed postgraduate studies in International Law at
+CEDIN, Belo Horizonte, achieving the highest grade. I hold English-language certificates, including the
+FCE and a certificate from New College Group in Dublin, Ireland. I speak, understand and write in English
+and take Spanish and French classes. My native language is Portuguese. I completed a Human Rights
+course with Amnesty International in Dublin, Ireland. I participate in volunteer projects such as “Todos
+contra a Pedofilia” (All Against Paedophilia) in Divinópolis. I have an MBA in Marketing, an area I find very
+interesting and which also helps me in the legal field. My legal education has enabled me to work well
+with people and solve problems; I am highly communicative and dedicated to my work. My areas of
+interest include Public International Law, Human Rights, Humanitarian Law, International Criminal Law,
+International Courts and Tribunals, and International Relations, among others. (Text supplied by the
+author)
 
 ## 🎓 Academic Education & Degrees
 *   **Master’s Degree in International Law** (2018–2021)

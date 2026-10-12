@@ -1,7 +1,7 @@
 # 🧑‍💻 Fabrícia Santos Rabelo
 ### Researcher in Public International Law, Human Rights & Humanitarian Law
 
-> 🔗 **Lattes ID:** [9466525341532713]([http://cnpq.br](https://buscatextual.cnpq.br/buscatextual/visualizacv.do)) | 
+> 🔗 **Lattes ID:** [9466525341532713]([http://cnpq.br](https://buscatextual.cnpq.br/buscatextual/visualizacv.do) | 
 
 ---
 
